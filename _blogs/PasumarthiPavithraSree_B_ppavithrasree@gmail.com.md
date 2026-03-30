@@ -42,4 +42,5 @@ I will continue to learn, improve, and give my best in the upcoming phases, stri
 ---
 
 Author: [Pasumarthi Pavithra Sree](https://www.linkedin.com/in/pavithra-sree-pasumarthi-850a45352/){:target="_blank"}
+
 LinkedIn Article: [Read on LinkedIn](https://www.linkedin.com/pulse/where-curiosity-met-consistency-my-vinternship-pasumarthi-kevhc//){:target="_blank"}
